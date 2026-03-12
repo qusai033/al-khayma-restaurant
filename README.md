@@ -1,1 +1,0 @@
-# al-khayma-restaurant
